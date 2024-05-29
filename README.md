@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @KaduTMachado
-- 👀 I’m interested in dick
-- 🌱 I’m currently learning porn
-- 💞️ I’m looking to collaborate on big cock
-- 📫 How to reach me sex gay
+- 👀 I’m interested 
+- 🌱 I’m currently 
+- 💞️ I’m looking to collaborate 
+- 📫 How to reach me 
 - 😄 Pronouns: elu delu
-- ⚡ Fun fact: i like big dick
+- ⚡ Fun fact:
 
 <!---
 KaduTMachado/KaduTMachado is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
