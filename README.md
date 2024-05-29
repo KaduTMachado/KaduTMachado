@@ -3,7 +3,7 @@
 - 🌱 I’m currently 
 - 💞️ I’m looking to collaborate 
 - 📫 How to reach me 
-- 😄 Pronouns: elu delu
+- 😄 Pronouns:
 - ⚡ Fun fact:
 
 <!---
